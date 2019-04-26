@@ -1,1 +1,1 @@
-Just SCAN it
+Just SCAN it here！
