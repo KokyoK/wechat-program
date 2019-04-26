@@ -1,1 +1,1 @@
-Just SCAN it here！
+LOOK at here！
